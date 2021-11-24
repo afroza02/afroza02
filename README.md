@@ -8,9 +8,6 @@
 - Currently learning Vue.js
 - Looking forward to any opportunity, which i don't explore yet<br/>
 
-[Please visit for detailed resume](https://1drv.ms/b/s!AjQGzxCRkOYBgpxcZ8pvNPkqp_Yi4A)<br/>
-
-
 ### Connect with me:
 
 
